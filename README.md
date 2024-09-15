@@ -16,7 +16,7 @@ I have experience in design and digital media, Xuan is proficient in tools such 
 
  ## Extracurricular 
  
- ### leadership role
+ ### Leadership role
 
  * President of Vietnam Student Associate in 2023-2024
  * Global Guides in International Orientation in 2024
