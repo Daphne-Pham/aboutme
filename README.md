@@ -3,7 +3,7 @@
 Juniata College 
 POE: Marketing with Communication and Integrated Media Arts 
 
-Email: phamxh22@juniata.edu / 
+Email: phamxh22@juniata.edu / [Portfolio](https://www.behance.net/daphnepham1003/projects)
 
 
 ## About me 
