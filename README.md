@@ -1,4 +1,4 @@
-  # Daphne 'Xuan' Pham
+# Daphne 'Xuan' Pham
 
 Juniata College 
 POE: Marketing with Communication and Integrated Media Arts 
